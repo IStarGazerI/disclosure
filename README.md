@@ -45,6 +45,8 @@ Before discarding these topics without even giving them the benefit of the doubt
   * [Statement by the Department of Defense on the Release of Historical Navy Videos](https://www.defense.gov/Newsroom/Releases/Release/Article/2165713/statement-by-the-department-of-defense-on-the-release-of-historical-navy-videos)
   * [Navy Officially Releases Controversial UFO Videos](https://www.thedrive.com/the-war-zone/33179/navy-officially-releases-infamous-ufo-videos)
   * [Pentagon releases three UFO videos taken by US navy pilots](https://www.theguardian.com/world/2020/apr/27/pentagon-releases-three-ufo-videos-taken-by-us-navy-pilots)
+  * [Cmdr. David Fravor, strike Fighter Commander Details Incredible UFO Event](https://www.youtube.com/watch?v=jCaruUtiPHo)
+  * [Cmdr. David Fravor, pilot of one of the F/A-18 Hornet aircraft, who spotted the UFO in the USS Nimitz incident](https://www.youtube.com/watch?v=Eco2s3-0zsQ&t=20s)
   * [SCU Nimitz 2004 Paper](https://www.explorescu.org/post/nimitz_strike_group_2004)
   * [UFOs and the Media: Disinformation or Disclosure? | Richard Dolan](https://www.youtube.com/watch?v=IHTXKp6L9qU)
   * [Luis Elizondo Presents the History of AATIP](https://www.youtube.com/watch?v=D3r6SmrCUM0&list=UU8CdAj1rveMTjR72_LdDBpQ)
